@@ -1,1 +1,1 @@
-# Base_BULL
+# Base_BULL airdrop 01/12/25
